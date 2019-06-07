@@ -1,0 +1,1 @@
+Esse Bot tem como funcao de ajudar e facilitar a vida de tuiristas que desejam encontrar uma cidade tipica do interior paulista, Paraibuna tem todos os requesitos para agradar todo e qualquer tipo de geracao, tendo sua culinaria regional, seus diversos restaurantes e seu pontos turisticos que é seu forte.
